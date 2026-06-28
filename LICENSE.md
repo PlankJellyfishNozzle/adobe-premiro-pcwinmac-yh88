@@ -1,4 +1,4 @@
-# 
+# Ultime Adobe Premiere Pro plugins pour Mac OS | Élite Adobe Premiere Pro plugins pour PC Windows. Avec rotoscopie et modèles de projet — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
